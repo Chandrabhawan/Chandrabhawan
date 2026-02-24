@@ -69,7 +69,7 @@ I am a results-driven Data Analyst with 3+ years of experience transforming raw 
 
 ## 🤝 Connect With Me
 
-* 💼 LinkedIn: [https://linkedin.com/in/YOUR_PROFILE](https://linkedin.com/in/chandrabhawan)
+* 💼 LinkedIn: [https://linkedin.com/in/chandrabhawan](https://linkedin.com/in/chandrabhawan)
 * 📧 Email: [chandrabhawan40@gmail.com](mailto:chandrabhawan40@gmail.com)
 
 ---
